@@ -3,6 +3,7 @@
 #### Makes 1 (9-inch) tart
 Ingredients
 
+    Bacon 
     Browned Butter (recipe follows), softened
     ⅓ cup (40 grams) confectioners’ sugar
     ¾ teaspoon (3 grams) vanilla extract*
